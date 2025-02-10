@@ -12,3 +12,4 @@
 # Jangan maruk-maruk bang. 
 
 ![Image](https://github.com/user-attachments/assets/5e6cd5f8-088d-4564-b3ad-cf79c86d0439)
+![Image](https://github.com/user-attachments/assets/df02d386-2361-440c-b970-5716d18b71e1)
